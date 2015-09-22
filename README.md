@@ -1,1 +1,0 @@
-# ccpatel.github.io
